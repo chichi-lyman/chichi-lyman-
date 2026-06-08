@@ -1,7 +1,7 @@
 # chichi-lyman-
 # CHELSEA MEGAN WOODS
 **Lead AI Architect & Founder, Chelsea Woods & Co.**  
-[Email Address] | [Phone Number] | [GitHub/Portfolio Link] | [Location/Remote]
+chelsearager1@gmail.com | 407-906-9330 | https://github.com/chichilyman | Tampa Florida/Remote 
 
 ---
 
